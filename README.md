@@ -1,7 +1,8 @@
 # PBirdTool
 
 CONTACT ME AT DISCORD: passingbird    
-JOIN THE DISCORD SERVER: https://discord.gg/HK2npsCfUE  
+JOIN THE DISCORD SERVER: https://discord.gg/HK2npsCfUE   
+PRICING: $7 FOR EVERY TWO MONTHS
 
 DISCLAIMER: I AM NOT RESPONSIBLE FOR ANY BANS THAT HAPPEN WHILE USING THIS TOOL!  
 
@@ -19,7 +20,7 @@ You will be invited to my Discord server where people that paid for the tool are
 HOW TO USE:  
 DISABLE YOUR ANTI-VIRUS FIRST!! Disable real time protection. If you don't know how to do this watch a YouTube video. THIS IS DUE TO THE LOADER USING A .DLL file.      
 1. Download the loader exe file.  
-2. Send a message to me on Discord and pay your $10. I will send you a license key. DO NOT LOSE THIS KEY AND DO NOT SHARE IT! Keep it stored somewhere so you don't forget it.  
+2. Send a message to me on Discord and pay your $7. I will send you a license key. DO NOT LOSE THIS KEY AND DO NOT SHARE IT! Keep it stored somewhere so you don't forget it.  
 
 HOW LONG UNTIL I GET ACCESS AFTER PAYING?     
 It may take up to a day to get your license key after paying. Please remember that I am a busy university student and I also work as well.  
