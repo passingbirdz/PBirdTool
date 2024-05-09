@@ -8,7 +8,7 @@ DISCLAIMER: I AM NOT RESPONSIBLE FOR ANY BANS THAT HAPPEN WHILE USING THIS TOOL!
 As a cheat developer, I have been using my own private version of my tool for Master Duel since release.  
 However, I have decided now to sell my tool as I no longer play Master Duel that much.  
 
-THIS IS A MONTHLY TOOL WHICH YOU WILL HAVE TO PAY $10 FOR!!    
+THIS IS A MONTHLY TOOL WHICH YOU WILL HAVE TO PAY $7 FOR!!    
 Why do something for free if you're good at it? As a university student I need some extra income :).  
 
 PAYMENT METHODS: PayPal, Gift Cards/Prepaid Cards. Subscriptions are NOT renewed so you will have to pay manually every month.   
